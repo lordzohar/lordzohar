@@ -20,6 +20,9 @@
 
 ![image](https://github.com/user-attachments/assets/5b209783-216a-408e-969c-6913a14ddef6)
 
+Support me please 
+<a href="https://www.buymeacoffee.com/dailymeme" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
